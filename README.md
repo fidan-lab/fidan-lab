@@ -2,7 +2,7 @@
 - 👀 I’m interested in reading books and science at the same time.
 - 🌱 I’m currently learning programming, coding
 - 💞️ I’m looking to collaborate on building apps, websites and even more.
-- 📫 How to reach me ...
+- 📫 How to reach me fidanhuseynova0088@gmail.com
 - 😄 Pronouns: she/her.
 - ⚡ Fun fact: It is soo hard to learn programming!
 
